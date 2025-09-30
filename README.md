@@ -1,4 +1,6 @@
-wip
+wip<img width="500" height="100" alt="1000005202" src="https://github.com/user-attachments/assets/0e0325be-8f2e-4adf-89ac-8b9e2642dc48" />
+![1000005226](https://github.com/user-attachments/assets/a03e96bd-618c-4319-b411-ecf8b844c94e)
+
 <!--
 **maymadnness/Maymadnness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
