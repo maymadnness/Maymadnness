@@ -12,7 +12,7 @@ WIPPPP WIP WIP WIP WIP WIP WIP WIP WIP WIP WIP WIP WIP WIP WI PWIP EIP WIP
 Hey, you can call me William, or whatever else you know me as :)
 
 
-DNI : Spawnists, Zoophilia, NSFW, Pedophilia, Proshipping, Sh0ta/Lolicons, etc. No thanks.
+DNI : Spawnists, Zoophilia, NSFW, Pedophilia, Proshipping, etc. weirdos in general
 
 <img width="500" height="100" alt="1000005202" src="https://github.com/user-attachments/assets/0e0325be-8f2e-4adf-89ac-8b9e2642dc48" />
 
