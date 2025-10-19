@@ -4,15 +4,9 @@
 <img width="1111" height="74" alt="1000005585" src="https://github.com/user-attachments/assets/aea7cf55-0b44-4395-a88a-bf778189e1af" />
 
 
-List of cool people that i know and dont know!!!!
+wip 
 
-https://github.com/Festivespooks
-https://github.com/ghostyvamps
-https://github.com/ar3zzz 
-https://github.com/blueestarlight
-https://github.com/N0VALITE 
-
-also formerly known as tealstarr, or the-solarsystem
+«  ♦️  » Dni Proshippers, Spawnists, Pedophiles, Zoophiles, and other problematic people
 
 <img width="1111" height="74" alt="1000005585" src="https://github.com/user-attachments/assets/aea7cf55-0b44-4395-a88a-bf778189e1af" />
 
