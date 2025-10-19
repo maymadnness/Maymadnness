@@ -1,7 +1,8 @@
 
 ![1000005154](https://github.com/user-attachments/assets/41f7a423-c973-4566-b6d7-d6825d5b7882)
 
-also formerly known as tealstarr, or the-solarsystem
+<img width="1111" height="74" alt="1000005585" src="https://github.com/user-attachments/assets/aea7cf55-0b44-4395-a88a-bf778189e1af" />
+
 
 List of cool people that i know and dont know!!!!
 
@@ -10,3 +11,10 @@ https://github.com/ghostyvamps
 https://github.com/ar3zzz 
 https://github.com/blueestarlight
 https://github.com/N0VALITE 
+
+also formerly known as tealstarr, or the-solarsystem
+
+<img width="1111" height="74" alt="1000005585" src="https://github.com/user-attachments/assets/aea7cf55-0b44-4395-a88a-bf778189e1af" />
+
+
+![1000005154](https://github.com/user-attachments/assets/41f7a423-c973-4566-b6d7-d6825d5b7882)
